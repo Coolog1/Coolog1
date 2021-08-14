@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Coolog1
+- 👀 I’m interested in CODING
+- 🌱 I’m currently learning PYTHON AND JavaScript
+- 📫 Reach me by DISCORD (dark_knight's night#1290)
